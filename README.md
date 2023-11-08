@@ -2,7 +2,7 @@
 - 👀 I’m interested in streaming and coding 
 - 🌱 I’m currently learning languages
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me instagram handle - Saksham_01_gupta
+- 📫 How to reach me linkedIN - (https://www.linkedin.com/in/sakshamgupta0103/)
 
 <!---
 saksham0103/saksham0103 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
